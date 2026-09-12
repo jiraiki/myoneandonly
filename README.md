@@ -10,4 +10,4 @@ Dear diary
 
 wanted to write 'bout this. I noticed yesterday you actually look at me when ur bored or something similar to it. Yesterday in p.e, i remember you falling next to me and i laughed at you, i kinda feel bad now. I remember while you went into the locker rooms, it looked like you were waiting for me to come, only for it to end up in you leaving. I wish we Could talk again.. its such a shame both of us are socially akward and introverts!
 
- written 12/9/16 10:37 pm
+ written 12/9/26 10:37 pm
